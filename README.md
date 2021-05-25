@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Thrillz420
+- 👀 I’m interested in making money 
+- 🌱 I’m currently learning how to make money
+- 💞️ I’m looking to collaborate on making money
+- 📫 How to reach me to make the most money
